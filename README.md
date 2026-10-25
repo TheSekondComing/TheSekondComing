@@ -4,7 +4,7 @@ hi!! i'm orange/TSC!!
 
 <img width="601" height="500" alt="image" src="https://github.com/user-attachments/assets/15389741-df73-4d00-b875-651e58229ddd" />
 
-![](https://komarev.com/ghpvc/?TheSekondComing=amount+of+times+TSC+was+booped)
+![](https://komarev.com/ghpvc/TheSekondComing=amount+of+times+TSC+was+booped)
 
 
 
