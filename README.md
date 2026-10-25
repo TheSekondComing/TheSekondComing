@@ -4,6 +4,9 @@ hi!! i'm orange/TSC!!
 
 <img width="601" height="500" alt="image" src="https://github.com/user-attachments/assets/15389741-df73-4d00-b875-651e58229ddd" />
 
+[Profile view counter on GitHub](https://github.com/TheSekondComing)
+
+
 ### ponytown do's !!
 **C+H encouraged! Also feel free to yap with me! I like to talk a lot!**
 ava discussion and randomly appearing in character (Yes TDL I can see you.)
