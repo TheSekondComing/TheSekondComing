@@ -1,12 +1,11 @@
 ## THE SECOND COMING - PONYTOWN GITHUB!
 
+# ![](https://komarev.com/ghpvc/?username=TheSekondComing&color=orange&label=amount+of+times+TSC+was+booped)
+
+
 hi!! i'm orange/TSC!!
 
 <img width="601" height="500" alt="image" src="https://github.com/user-attachments/assets/15389741-df73-4d00-b875-651e58229ddd" />
-
-![](https://komarev.com/ghpvc/?username=TheSekondComing&color=green&label=amount+of+times+TSC+was+booped)
-
-
 
 ### ponytown do's !!
 **C+H encouraged! Also feel free to yap with me! I like to talk a lot!**
